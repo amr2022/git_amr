@@ -1,5 +1,3 @@
 # git_amr
 ## project notes
-**hi**
-*kong*
-**smile faces _wong_perfect**
+**please call me _now_ or i will _fuvk_ you**
